@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-Tird of pretending human. Here i'll talk some alien thing.
+Tird of pretending human. Here i'll share some alien thing.
 
 Don't ask me anything. I don't give a fucking! shit! about what you want to know!!
 
