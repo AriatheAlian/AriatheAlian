@@ -8,7 +8,7 @@ Fuck off. Except you give me money.
 
 Sometimes i use human translator. About bio, this is human language:
 
-_I'm Alien-king.I dropped in earth by mistakes. Give me money to help so that I can return my mother planet and take back my glory. As reward you can win my lordly friendship! I need to go back now!! I’m down in the Earth！_
+_I'm Alien-king. Mistake dropped me to earth. Give me money to help so that I can return my mother planet and take back my glory. As reward you can win my lordly friendship!_
 
 U R Welcome😊
 
